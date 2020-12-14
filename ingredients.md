@@ -1,0 +1,1 @@
+Refined flour,cocoa powder, crushed oreos, chocolate syrup,melted butter,sugar,milk,curd,baking powder,baking soda,vanilla essence.
